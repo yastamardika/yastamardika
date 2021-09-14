@@ -1,4 +1,4 @@
-### Hi there 👋
+### Sugeng enjing, sugeng siyang, sugeng sonten, lan sugeng ndalu sedaya mawon 👋✌
 
 <!--
 **yastamardika/yastamardika** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
