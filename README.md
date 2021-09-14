@@ -1,5 +1,9 @@
 ### Sugeng enjing, sugeng siyang, sugeng sonten, lan sugeng ndalu sedaya mawon 👋✌
 
+Dipun tepangaken
+nami kula mardi 
+kula namung tiyang santay
+<img align='right' src="https://github-readme-stats.vercel.app/api?username=yastamardika&show_icons=true">
 <!--
 **yastamardika/yastamardika** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
